@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about 
 - 📫 How to reach me: sk4d#0616
 - 😄 Pronouns: idk
-- ⚡ Fun fact: every 60 seconds a minute passes ... jk sorry :lol:
+- ⚡ Fun fact: every 60 seconds a minute passes
 
